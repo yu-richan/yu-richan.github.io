@@ -1,0 +1,1 @@
+# yu-richan.github.io
